@@ -1,1 +1,1 @@
-# unaids_jamaica_stories
+# unaids_jamaica_series
